@@ -1,1 +1,1 @@
-# Natural_zones_of_Ukraine
+# Natural-zones-of-Ukraine
